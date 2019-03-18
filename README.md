@@ -1,4 +1,3 @@
 # edu
 llllllll
-ssssš
 m
